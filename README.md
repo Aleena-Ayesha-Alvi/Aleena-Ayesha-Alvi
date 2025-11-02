@@ -2,7 +2,7 @@
 - 👀 I’m interested in making new study buddies.
 - 🌱 I’m currently learning Modern Application Development.
 - 💞️ I’m looking to collaborate on mini projects that can help me learn more about the basics of web development.
-- 📫 Rach me through my IG.
+- 📫 Reach me through my IG.
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love Animals.
 
